@@ -1,5 +1,7 @@
-### Halo There 👋
-Perkenalkan nama saya **Muhammad Revansyah Rifky Al-basith**.
+# Hai!
+
+Linkedin  : https://www.linkedin.com/in/muhammad-revansyah-0566671a0/ \
+Instagram : https://www.instagram.com/revansyah.muhammad/
 
 
 ### Github Statistik
